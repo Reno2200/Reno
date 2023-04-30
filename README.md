@@ -1,2 +1,0 @@
-# Reno
-My CV 
